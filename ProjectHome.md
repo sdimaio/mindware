@@ -1,0 +1,1 @@
+Open platform for general purpose information systems
